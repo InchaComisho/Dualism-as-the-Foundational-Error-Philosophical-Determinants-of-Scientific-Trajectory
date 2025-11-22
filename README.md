@@ -1,0 +1,2 @@
+# Dualism-as-the-Foundational-Error-Philosophical-Determinants-of-Scientific-Trajectory
+Modern civilization faces accelerating systemic collapse driven by climate destabilization, biodiversity loss, soil degradation, and the breakdown of planetary circulatory systems. While this crisis is often framed as a technological or political failure, this paper demonstrates that the root cause is philosophical: the adoption of dualist ontology
